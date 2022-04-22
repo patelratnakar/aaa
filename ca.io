@@ -1,0 +1,1 @@
+CA stands for Chartered Accountant. It is a professional designation in the field of finance. A charted accountant is a highly qualified professional who has expertise in taxation, audit and management of financial issues. They are hired for all type of organizations such as private firms, public sector companies or governments bodies.
